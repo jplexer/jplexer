@@ -1,5 +1,5 @@
 # 💫 About Me:
-Hey there! I'm JPlexer but you can also call me JP.<br><br>I am 17 and still go to school currently.<br><br>I love working on projects and if I think they are good enough, I publish them here<br>
+Hey there! I'm JPlexer but you can also call me JP.<br><br>I am 18 and still go to school currently.<br><br>I love working on projects and if I think they are good enough, I publish them here<br>
 
 
 ## 🌐 Socials:
