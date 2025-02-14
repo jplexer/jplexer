@@ -1,5 +1,5 @@
 # 💫 About Me:
-Hey there! I'm JPlexer but you can also call me JP.<br><br>I am 18 years old and currently a student at the University of Applied Sciences Cologne.<br><br>I love working on projects and if I think they are good enough, I publish them here<br>
+Hey there! I'm JPlexer but you can also call me JP.<br><br>I am 19 years old and currently a student at the University of Applied Sciences Cologne.<br><br>I love working on projects and if I think they are good enough, I publish them here<br>
 
 
 ## 🌐 Socials:
