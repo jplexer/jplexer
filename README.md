@@ -1,5 +1,5 @@
 # 💫 About Me:
-Hey, I'm JP! You may also see me on the internet as JPlexer or funnyna.me.<br><br>I am 19 years old and currently a student at Cologne University of Applied Sciences.<br><br>I like tinkering with electronics, I enjoy 3D printing, and I am especially a fan of the Pebble smartwatch.
+Hey, I'm JP! You may also see me on the internet as JPlexer or funnyna.me.<br><br>I am 20 years old and currently a student at Cologne University of Applied Sciences.<br><br>I like tinkering with electronics, I enjoy 3D printing, and I am especially a fan of the Pebble smartwatch.
 
 
 ## 🌐 Socials:
